@@ -8,7 +8,7 @@ Make sure you understand your character sheets and the information on it. If you
 
 ## Basics
 
-As your DM, it's my job to make sure you understand what's going on and enjoy yourselves. Everytime you experience a a new aspect of the game for the first time I'll walk you through it. I'll also make suggestions about actions until you become more comfortable. 
+As your DM, it's my job to make sure you understand what's going on and enjoy yourselves. Everytime you experience a new aspect of the game for the first time I'll walk you through it. I'll also make suggestions about actions until you become more comfortable. 
 
 ## Table Rules
 
